@@ -1,0 +1,1 @@
+# symetryczny-okto-sukkota-owy
